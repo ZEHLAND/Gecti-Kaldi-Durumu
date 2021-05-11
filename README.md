@@ -1,0 +1,1 @@
+# Gecti-Kaldi-Durumu
